@@ -1,0 +1,1 @@
+a beautiful view from Zanskar
